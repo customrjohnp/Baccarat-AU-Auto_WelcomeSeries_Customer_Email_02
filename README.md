@@ -1,0 +1,2 @@
+# Baccarat-AU-Auto_WelcomeSeries_Customer_Email_02
+Baccarat AU Auto_WelcomeSeries_Customer_Email_02
